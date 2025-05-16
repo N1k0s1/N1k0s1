@@ -2,7 +2,6 @@
 - 👀 I’m interested in Sailing, Tech & Coding
 - 🌱 I’m currently learning HTML & CSS
 - 💞️ I’m looking to collaborate on anything, feel free to reach out
-- 📫 How to reach me: My discord is apringle
 - 😄 Pronouns: he/him
 - ⚡ Fun fact: I sail at Akarana Yacht Club
 
